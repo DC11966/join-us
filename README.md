@@ -27,6 +27,8 @@ This is your place if you have people skills and you'd love to be the social but
 Interested in any of the above? Awesome, please fill in the form if you want to get contacted: https://forms.gle/Hhiughnk3xANocSc7
 
 ## Donation/crowdfunding
-With your generous donations the DC11966 organizers will be able to afford running more meetups. If you want to help out, buy us coffee: (ko-fi)[https://ko-fi.com/dc11966]
+With your generous donations the DC11966 organizers will be able to afford running more meetups. 
+If you want to support our events, check: https://ko-fi.com/dc11966
 
+Feel free to reach out to us via Twitter DM if you have any questions: @dc11966 :)
 
